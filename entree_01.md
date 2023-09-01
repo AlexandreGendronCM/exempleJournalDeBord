@@ -10,3 +10,11 @@ Expliquer en 5 à 10 lignes ce qui vous intéresse en TIM. Parlez de ce qui vous
 
 
 
+J'ai choisi le programme TIM par intéret général. Cependant, j'ai une plus grande affinité pour l'animation **2d/3d** et l'illustration numérique (**photoshop**)
+Les cours qui m'intéressent le plus sont les cours d'animation, les cours de photoshop et les cours de modélisation 3d.
+Voici mes séries d'animation favorites
+* NEON GENESIS EVANGELION 🤖
+* FULLMETAL ALCHEMIST BROTHERHOOD 🐶
+* VINLAND SAGA 👨‍🌾✌
+* BLEACH 🔪
+* BLACK LAGOON 🏴‍☠️🔫
