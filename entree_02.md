@@ -4,7 +4,7 @@ Choisissez cinq oeuvres multimédia. Expliquez en quoi ces dernières pourraient
 
 
 ### [Akira](https://en.wikipedia.org/wiki/Akira_(1988_film))
-J'aime beaucoup le film d'animation *Akira*, car il raconte une histoire phénoménale et des personnages attachants. De plus le style de ce film est tout simplement incroyable pour l'époque. Aussi, il est important de se rappeler qu'*Akira* à été dessiné à la main. Ce style de dessin et d'animation est en grande parti ce qui m'a poussé à me lancer dans le multimédia, car couplé à son OST, l'ambiance du film devient hypnotisante. ![picture alt](https://m.media-amazon.com/images/M/MV5BNTRkY2Y4NmYtMjBlZi00NmU2LWIxYjQtNDdmZGUwMWM5ZmMzXkEyXkFqcGdeQXVyNjUwNzk3NDc@._V1_.jpg) 
+J'aime beaucoup le film d'animation [*Akira*](https://en.wikipedia.org/wiki/Akira_(1988_film)), car il raconte une histoire phénoménale et des personnages attachants. De plus le style de ce film est tout simplement incroyable pour l'époque. Aussi, il est important de se rappeler qu'*Akira* à été dessiné à la main. Ce style de dessin et d'animation est en grande parti ce qui m'a poussé à me lancer dans le multimédia, car couplé à son OST, l'ambiance du film devient hypnotisante. ![picture alt](https://m.media-amazon.com/images/M/MV5BNTRkY2Y4NmYtMjBlZi00NmU2LWIxYjQtNDdmZGUwMWM5ZmMzXkEyXkFqcGdeQXVyNjUwNzk3NDc@._V1_.jpg) 
 Source: Akira (1988)
 
 
