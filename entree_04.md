@@ -2,14 +2,16 @@
 ## Décrire 5 emplois du domaine du multimédia
 Choisissez des emplois qui pourraient vous intéresser. 
 
-### Emploi 1 - Identification
-Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
+### Uni 1 - Centre NAD
 
-### Emploi 2 - Identification
-4 à 5 lignes
+J'aimerais faire le bac en **animation 3d et design numérique** ,car j'aimerais devenir un character designer(peut importe quoi designer pour être honnête) et ce BAC pourrait me permettre d'exercer ce métier dans de grandes entreprises.
 
-### Emploi 3 - Identification
-4 à 5 lignes 
+### Emploi 2 - Character Designer
+
+J'aimerais faire cet emploi, car j'ai toujours trouvé l'idée d'avoir mes personnages dans un jeu intéressante. De plus j'aimerais faire de la 3d.
+
+### Emploi 3 - Web Designer
+
 
 ### Emploi 4 - Identification
 4 à 5 lignes
