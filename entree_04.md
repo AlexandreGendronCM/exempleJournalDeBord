@@ -10,7 +10,9 @@ J'aimerais faire le bac en **animation 3d et design numérique** ,car j'aimerais
 
 J'aimerais faire cet emploi, car j'ai toujours trouvé l'idée d'avoir mes personnages dans un jeu intéressante. De plus j'aimerais faire de la 3d.
 
-### Emploi 3 - Web Designer
+### Emploi 3 - Web Designer / Dev / Programation en général
+
+Cet emploi est certainement un possibilité, car j'ai de la facilité en programation et que le salaire peut être très intéressant.
 
 
 ### Emploi 4 - Identification
