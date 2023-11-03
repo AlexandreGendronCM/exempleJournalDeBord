@@ -18,9 +18,11 @@ Cet emploi est certainement un possibilité, car j'ai de la facilité en program
 
 
 ### Emploi 4 - Emploi dans le journalisme
-Un emploi dans le journalisme m'intéresserait, car je pourrais probablement travailler avec beaucoup de personnes différentes. Aussi je pourrais m'interesser à beaucoup de sujets différents et interroger de nombreuses personnes. Il serait aussi possible de soutenir différentes causes via des articles. Aussi, le partage de l'information est crucial  dans la société actuelle. Cet emploi conciste à collecter des informations et à les diffuser pour informer la population.
+
+Un emploi dans le journalisme m'intéresserait, car je pourrais probablement travailler avec beaucoup de personnes différentes. Aussi je pourrais m'interesser à beaucoup de sujets différents et interroger de nombreuses personnes. Il serait aussi possible de soutenir différentes causes via des articles. Aussi, le partage de l'information est crucial  dans la société actuelle. Cet emploi conciste à collecter des informations et à les diffuser pour informer la population. Aussi, il serait possible de voyager dans le monde pour collecter des informations.
 
 ### Emploi 5 - Emploi dans la publicité
 
+Un emploi dans la publicité pourrait être intéressant, car j'aime bien l'idée de trouver une façon innovante et pratique de promouvoir quelque chose. De plus, comme pour le journalisme, il est possible de promouvoir des cause auquelles je tiens (parfois). Il sera possible de travailler avec différentes compagnies et entreprises. Cet emploi consiste à créer des publicité selon les demandes de l'équipe marketing de la compagnie qui nous engage.
 
 
