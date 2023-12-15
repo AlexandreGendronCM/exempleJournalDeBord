@@ -15,6 +15,10 @@ Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moo
 ### Technologies
 Décrivez quelles seront les technologies utilisées dans votre projet. 
 
+Vidéo mapping, AR, Projection
+
 ### Tâches
 Quelles sont les tâches nécessaires à la réalisation de votre projet? 
+
+Programmation, Vidéo Mapping, INstallation, Construction des décors, Scénarisation . . .
 
