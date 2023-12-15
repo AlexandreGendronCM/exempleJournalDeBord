@@ -8,6 +8,10 @@ Résumer le projet en une phrase concise.
 ### Moodboard
 Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moodboard, de maquettes ou de croquis. 
 
+
+![picture alt]("F:\DOMAINE\FINAL\PHOTOSHOP\StoryBoard.jpg")
+
+
 ### Technologies
 Décrivez quelles seront les technologies utilisées dans votre projet. 
 
